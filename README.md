@@ -1,1 +1,0 @@
-# soshace_test
